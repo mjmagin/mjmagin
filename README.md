@@ -1,4 +1,4 @@
-### Hi there 👋
+### They call me Magin, James Magin
 
 <!--
 **mjmagin/mjmagin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
